@@ -7,6 +7,6 @@
 📫 I can be reached at skerrnyc@gmail.com
 😄 Pronouns: I’ve been called most anything imaginable, some of it was true…
 ⚡ Fun fact: I was once the lead singer and bass player for a post-punk/new wave band, 
-became a trader at a global investment bank as the world darn near collapsed leading up to 2008, 
+became a derivatives trader at a global investment bank as the world darn near collapsed leading up to 2008, 
 and eventually worked as a project manager on an AI software project for the Defense Intelligence Agency. 
 I still want to be in a band…
